@@ -1,2 +1,2 @@
 # deathinvenice
-LiveJournal 2003-2007
+LiveJournal 2003-2009
